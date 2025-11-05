@@ -1,2 +1,0 @@
-# G7_CaseStudy2
-ARCHCRAFT
